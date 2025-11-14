@@ -1,4 +1,4 @@
-
+<p align="center"> cred : @aftn0614 on X
 <img width="1557" height="814" alt="Image" src="https://github.com/user-attachments/assets/3ec43438-1d6e-40af-b92d-a04e28ba5b5a" />
 
 <p align="center">
